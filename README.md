@@ -3,4 +3,4 @@
 
 [i don't play about mista.](https://github.com/opioiid)
 
-#1 mista lover and naramis enthusiast
+#1 mista lover and [naramis](https://github.com/naramis) enthusiast
